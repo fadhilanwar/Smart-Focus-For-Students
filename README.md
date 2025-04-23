@@ -5,8 +5,8 @@
 - 💻 Fadhil Anwar Ahsani
 - 💻 Haidar Atqiya Rahman
 
-> “Quotes disini nanti”
-> — TI Students
+> *“Waktu itu seperti pedang. Jika engkau tidak memotongnya, maka ia akan memotongmu"*  
+> — Imam Syafi'i
 >
 > 
 
